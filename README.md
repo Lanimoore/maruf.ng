@@ -1,5 +1,5 @@
 # maruf.ng
 
 Hello Naija,
-Na your boy, Maruf.
-i am now plugged in to sell and grow online
+na your boy Maruf.
+i am now plugged in to grow my e-shop
